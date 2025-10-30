@@ -1,1 +1,1 @@
-# isim_sozlugu
+# İsim Sözlüğü - 2025
